@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- School: San Francisco State University
+- Hometown: Vallejo, CA
+- Field of Study: Economics & Marketing
+- Contact Info: charlizemae240@gmail.com 
